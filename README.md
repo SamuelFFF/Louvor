@@ -1,8 +1,16 @@
-## Sexta-feira (Vida Dupla - Vigília) - 12/07
+> [!NOTE]
+> Informações para louvor da conferência jovem Meier
 
-> [Vigília - Playlist](https://youtube.com/playlist?list=PLa4nRoK8udqPmajCFupgClePyGcU83uCl&si=XYxTfNQVVdso4F67).
+|Dia|Tema|Playlist(Youtube)|
+|-----|-----|-----|
+|Sexta-feira 12/07|Vida Dupla - Vigília|[Link](https://youtube.com/playlist?list=PLa4nRoK8udqPmajCFupgClePyGcU83uCl&si=XYxTfNQVVdso4F67)|
+|Domingo manhã 14/07|Redenção|[link](https://youtube.com/playlist?list=PLa4nRoK8udqPflnKUnVOzV0-ZYBI4_6s0&si=ekpp9oaLmhx7W9pY)|
+|Domingo noite 14/07|Firme até o fim|[link](https://youtube.com/playlist?list=PLa4nRoK8udqOL4JKiJA_X8pETP1XcBaXs&si=kTlNUZyZm1B4tz00)|
 
-*Primeiro momento:*
+</br>
+
+# Sexta-feira (Vida Dupla - Vigília) - 12/07 ([Link](https://youtube.com/playlist?list=PLa4nRoK8udqPmajCFupgClePyGcU83uCl&si=XYxTfNQVVdso4F67)) 
+#### Primeiro momento:
   
 ```
         1. A Reforma - Attos 2 Worship
@@ -19,7 +27,7 @@
 ```
 
  
-*Segundo momento:*
+#### Segundo momento:
 
 ```
         1. Mil graus - Todos
@@ -33,11 +41,9 @@
         5. Quem é Esse + medley - Rafaela Rocha
 ```
 
-## Domingo manhã (Redenção) - 14/07  
->[Redenção - Playlist](https://youtube.com/playlist?list=PLa4nRoK8udqPflnKUnVOzV0-ZYBI4_6s0&si=ekpp9oaLmhx7W9pY).
-
-*Coral:*
-   
+# Domingo manhã (Redenção) - 14/07  ([link](https://youtube.com/playlist?list=PLa4nRoK8udqPflnKUnVOzV0-ZYBI4_6s0&si=ekpp9oaLmhx7W9pY))
+#### Coral:
+  
 ```
         1. Dias de Elias - Fernandinho
 
@@ -49,8 +55,7 @@
 ```
 
 
-*Segundo momento (após intervalo):*
-
+#### Segundo momento (após intervalo):
 ```
         1. Cordeiro e o Leão - Drops
 
@@ -60,10 +65,7 @@
 ```
 
 
-## Domingo noite (Firme até o fim) - 14/07
-
->[Firme até o fim - Playlist](https://youtube.com/playlist?list=PLa4nRoK8udqOL4JKiJA_X8pETP1XcBaXs&si=kTlNUZyZm1B4tz00).
-
+# Domingo noite (Firme até o fim) - 14/07 ([link](https://youtube.com/playlist?list=PLa4nRoK8udqOL4JKiJA_X8pETP1XcBaXs&si=kTlNUZyZm1B4tz00))
 ```
         1. Louve - Lu Alone
 
