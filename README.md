@@ -1,5 +1,3 @@
-# Coferencia 
-
 ### Sexta-feira (Vida Dupla - Vigília) - 12/07
 
 Primeiro momento:
